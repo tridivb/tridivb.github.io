@@ -1,2 +1,2 @@
-# tridivb.github.io
-Personal Website
+# Tridivraj Bhattacharyya
+TBD
